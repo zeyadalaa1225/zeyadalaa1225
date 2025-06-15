@@ -1,8 +1,4 @@
 <h1 align="center">Hi 👋, I'm Zeyad Alaa</h1>
-</div>
-<div align="center">
-<img align="center" alt="Coding" width="400" src="Code.gif"/>
-</div>
 
 
 <h3 align="center">Aspiring Mobile Developer | Learning & Building with Flutter</h3>
