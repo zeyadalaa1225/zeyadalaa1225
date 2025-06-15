@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **zeyad.esmail03@eng-st.cu.edu.eg**
 
-- 📄 Know about my experiences [https://1drv.ms/w/c/21233e48dcdfca2d/EZgWEMkepbRIhTENn5TSQg0BAnHkr-AIvD9QYoB19EQnAA?e=3MMjJ6](https://1drv.ms/w/c/21233e48dcdfca2d/EZgWEMkepbRIhTENn5TSQg0BAnHkr-AIvD9QYoB19EQnAA?e=3MMjJ6)
+- 📄 Resume [https://1drv.ms/w/c/21233e48dcdfca2d/EZgWEMkepbRIhTENn5TSQg0BAnHkr-AIvD9QYoB19EQnAA?e=3MMjJ6](https://1drv.ms/w/c/21233e48dcdfca2d/EZgWEMkepbRIhTENn5TSQg0BAnHkr-AIvD9QYoB19EQnAA?e=3MMjJ6)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
